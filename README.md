@@ -1,1 +1,3 @@
 # compu2
+
+LUCAS CROSTA
